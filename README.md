@@ -23,5 +23,6 @@
 
 «                                                                                          ПОДДЕРЖАТЬ АВТОРА                                                                                                                  »
 
+
 крипта тг - https://t.me/send?start=IVyRfmZ5S595
 поддержка донатом «DONAT ALERTS» - https://www.donationalerts.com/r/smelh21
